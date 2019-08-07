@@ -47,3 +47,5 @@ Oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh, oh-oh-oh
 You take my self, you take my self control
 You take my self, you take my self control
 You take my self, you take my self control...
+Oh, the night is my world, city light painted girl,
+
